@@ -1,4 +1,4 @@
 # letItSnow
 ## Nothing rather than joy 😃
 
-# Made by @Zcorp with coeur 🖤
+# Made by @Zcorp with 🖤
